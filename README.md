@@ -10,4 +10,6 @@ Email : vaishnavitirunagari2000@gmail.com
 
 Instagram : Vysh_0230
 
-Linkedin : https://www.linkedin.com/in/vaishnavi-tirunagari-5758a8211/
+LinkedIn : https://www.linkedin.com/in/vaishnavi-tirunagari-5758a8211/
+
+Twitter : https://twitter.com/VaishnaviTirun4
