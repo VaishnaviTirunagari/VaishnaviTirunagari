@@ -1,6 +1,7 @@
 ### Hi There, I am Vaishnavi Tirunagari! An Aspiring Data Analyst !
 ## Former Data Analytics Intern at EDUBRIDGE INDIA
 Am Looking to collaborate with other Data Analysts
+
 Goals: Contribute more into Data Analitics 
 
 Connect with me:
