@@ -9,3 +9,5 @@ Connect with me:
 Email: vaishnavitirunagari2000@gmail.com
 
 Instagram : Vysh_0230
+
+Linkedin:https://www.linkedin.com/in/vaishnavi-tirunagari-5758a8211/
